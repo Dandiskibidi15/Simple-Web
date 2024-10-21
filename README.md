@@ -1,2 +1,2 @@
 # Simple-Web
-collab with friends
+MALAS NGODING
